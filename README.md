@@ -1,5 +1,1 @@
 ![welcome](https://fastly.jsdelivr.net/gh/Lehmaning/Toolbox/Images/Pop_Team_Epic_1.jpg)
-* NEVER USE INSTANT MESSENGER
-* DO NOT USE SOCIAL NETWORK
-* PRIVACY FIRST WHATEVER YOUR SH*T WERE SOLD TO ANY PLACE
-* ⬆️ANY FUNNY STUFF IS NOT THE SHIELD OF A DAMN JERK⬆️
